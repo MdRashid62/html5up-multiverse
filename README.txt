@@ -1,1 +1,1 @@
-Eye-catching gall website.
+Eye-catching galle website.
