@@ -1,1 +1,1 @@
-Eye-catching gallery website.
+Eye-catching  website.
