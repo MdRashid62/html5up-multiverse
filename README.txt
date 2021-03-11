@@ -1,1 +1,1 @@
-Eye-catching ga website.
+Eye-catching gal website.
