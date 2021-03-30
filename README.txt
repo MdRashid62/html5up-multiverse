@@ -1,1 +1,1 @@
-Eye-catching gallery w
+Eye-catching gallery we
