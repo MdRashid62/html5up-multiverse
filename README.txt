@@ -1,1 +1,1 @@
-Eye-catching gallery we
+Eye-catching gallery web
