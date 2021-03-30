@@ -1,1 +1,1 @@
-Eye-catching gallery web
+Eye-catching gallery webs
